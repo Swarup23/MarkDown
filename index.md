@@ -1,0 +1,1 @@
+Thus bodily they produce offsprings. And with respect to soul they produce intelligence and art ("The greatest and most admirable wisdom is that which regulates the government of families and states, and which is called moderation and justice.")
